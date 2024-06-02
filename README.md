@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/g7phwJn/2-Sem-T-tulo-20240505193607.png" height="200px">
+  <img src="https://files.catbox.moe/nvwxps.png" height="200px">
 </p>
 
 <p align="center">
