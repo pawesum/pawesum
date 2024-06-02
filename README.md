@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <b>aaron.</b>⠀<img src="https://files.catbox.moe/fe2w88.gif">
+  ＃⠀⠀<b>AARON</b>⠀⠀<img src="https://files.catbox.moe/fe2w88.gif">
 </p>
 
 <p align="center">
