@@ -12,7 +12,7 @@
 
 <p align="center">
   <img src="https://64.media.tumblr.com/336040faac200d50d215a106cc21552d/132c09c2386dbe24-7b/s250x400/2f22edcd9b5c3b27d389cad928bba3f616165b7f.gifv"> <img src="https://64.media.tumblr.com/3b7fcc364a192bcc216a0b0396b20101/66f8bee48421ca35-5a/s250x400/aa12faa9a15d5089641dc9cfeb165dcc97283b61.webp"><br>
-  <img src="https://64.media.tumblr.com/ad0156c4476144db90d7ab437360b6c1/66f8bee48421ca35-26/s250x400/67f6783f92ad7a7dd08ffad67ff067237e23d3ab.gifv"> <img src="https://64.media.tumblr.com/30d6f7e39baa.gifv"><br>
+  <img src="https://64.media.tumblr.com/ad0156c4476144db90d7ab437360b6c1/66f8bee48421ca35-26/s250x400/67f6783f92ad7a7dd08ffad67ff067237e23d3ab.gifv"> <img src="https://files.catbox.moe/7svu2i.gif"><br>
   i am the guy with desaturated and green tintend<br>
   ponies who plays pony town whenever he can.
 </p>
