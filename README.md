@@ -6,7 +6,7 @@
 </p>
 
 <p align="center">
-  ＃⠀⠀<b>AARON</b>⠀⠀<img src="https://files.catbox.moe/fe2w88.gif">
+  <img src="https://files.catbox.moe/u36jo3.png">
 </p>
 
 <p align="center">
