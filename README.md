@@ -12,7 +12,7 @@
       you if you're annoying.</p>
   </div>
   <div>
-    <img src="https://komarev.com/ghpvc/?username=pawesum&color=dc143c"></a>
+    <img src="https://komarev.com/ghpvc/?username=pawesum&color=961006"></a>
   </div>
   <br>
   <div>
