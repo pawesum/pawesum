@@ -11,6 +11,9 @@
     <p>dnis are stupid, i'll just block<br>
       you if you're annoying.</p>
   </div>
+  <div>
+    <img src="https://komarev.com/ghpvc/?username=pawesum&color=dc143c"></a>
+  </div>
   <br>
   <div>
     <img src="https://files.catbox.moe/62zqxi.png"> <img src="https://files.catbox.moe/6mhvtu.gif"> <img src="https://64.media.tumblr.com/983e3857531c98db51cfe69a4f07ddab/23e83896a48037ad-25/s100x200/8e6b7420c48f3099b7b11d9737ed9ab069cd65ac.gifv"><br>
